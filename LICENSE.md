@@ -1,4 +1,4 @@
-
+Enhance your PrivateVPN experience with elite PrivateVPN Client | dedicated-IP + WireGuard-support, the #1 client. Includes dedicated-IP and WireGuard-support for a safer and more
 
 
 
